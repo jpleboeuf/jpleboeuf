@@ -15,5 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+- 🔭 I’m currently working on reshaping some of my old project ideas.
 - 📫 How to reach me: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/).
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before…
