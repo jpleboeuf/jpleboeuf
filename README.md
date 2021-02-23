@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🔭 I’m currently working on shapeshifting some of my old project ideas.
+- 🔭 I’m currently working on shapeshifting some old project ideas of mine.
 - 🌱 I’m currently learning to code ＿φ(°-°=) ლ(ಠ益ಠლ)
 - 💬 Ask me about anything.
 - 📫 How to reach me: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/).
