@@ -20,3 +20,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before…
 - 💬 Ask me about anything.
 - 📫 How to reach me: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/).
+
+**＼\ ٩( ᐛ )و /／**
