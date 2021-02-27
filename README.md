@@ -15,6 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+**ヽ( ᐛ )ﾉ**
+
 - 🔭 I’m currently working on shapeshifting some old project ideas of mine.
 - 🌱 I’m currently learning to code ＿φ(°-°=) ლ(ಠ益ಠლ)
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before…
