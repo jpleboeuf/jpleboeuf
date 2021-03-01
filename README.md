@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on shapeshifting some old project ideas of mine.
 - 🌱 I’m currently learning to code ＿φ(°-°=) ლ(ಠ益ಠლ)
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before…
-- 💬 Ask me about anything.
+- 💬 Ask me about anything ┐( ᐛ )┌
 - 📫 How to reach me: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/).
 
 **＼\ ٩( ᐛ )و /／**
