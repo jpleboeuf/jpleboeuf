@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-**ヽ( ᐛ )ﾉ**
+**\ ヽ( ᐛ )ﾉ /**
 
 - 🔭 I’m currently working on shapeshifting some old project ideas of mine ヽ( ᐛ)o─━・*:・:・゜・:
 - 🌱 I’m currently learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
