@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 **ヽ( ᐛ )ﾉ**
 
 - 🔭 I’m currently working on shapeshifting some old project ideas of mine ヽ( ᐛ)o─━・*:・:・゜・:
-- 🌱 I’m currently learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
+- 🌱 Unwontedly (contemptibly?), I’m currently learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before ⊹╰(｀ᐊ´)╯⊹
 - 💬 Ask me about anything ┐( ᐛ )┌
 - 📫 How to reach me: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/) ☆⌒ヽ(ᐖヽ)
