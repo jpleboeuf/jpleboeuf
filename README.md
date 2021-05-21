@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 **ヽ( ᐛ )ﾉ**
 
-- 😄 It’s me, some biological matter, often close to a computer (､ᐛ)ﾍ＿/ 
+- 😄 It’s _me_, some bio-logical matter, often close to a computer (､ᐛ)ﾍ＿/ 
 - 🔭 I’m currently working on shapeshifting some old project ideas of mine ヽ( ᐛ)o─━・*:・:・゜・:
 - 🌱 At the same time, unwontedly — some might say contemptibly — I’m having quite a time learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
 - ⚡ Fun fact: it seems that, with me, Shoshin reaches levels never seen before ⊹╰(｀ᐊ´)╯⊹
