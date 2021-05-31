@@ -17,6 +17,7 @@ Here are some ideas to get you started:
 
 **ヽ( ᐛ )ﾉ**
 
+- 🧟 [¬x_x]¬ [¬º-°]¬ &nbsp;&nbsp;&nbsp; ☆ﾟ°˖* ᕕ( ᐛ )ᕗ
 - 😄 It’s _me_, some bio-logical matter, often not far from a computer ༼､ᐛ༽ﾍ＿/ 
 - 🔭 _I_’m currently working on shapeshifting some old project ideas of _mine_ ヽ( ᐛ)o─━・*:・:・゜・:
 - 🌱 At the same time, unwontedly — some might say contemptibly — _I_’m having quite a time learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
