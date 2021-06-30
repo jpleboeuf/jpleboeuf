@@ -30,4 +30,4 @@ Here are some ideas to get you started:
 
 ミ★  ੈ✩‧˚
 
-ლ(｡-﹏-｡ ლ) &nbsp; [｡± _ ±｡]
+ლ(｡-﹏-｡ ლ) &nbsp; [｡± _ ±｡] &nbsp; (-﹏-。)
