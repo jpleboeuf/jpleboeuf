@@ -32,6 +32,6 @@ Here are some ideas to get you started:
 
 [｡± _ ±｡]
 
-ლ(｡-﹏-｡ ლ) &nbsp; (-﹏-。) &nbsp; ● ﹏☉
+༼ ಥ﹏لಥ ༽ ᵘgᵍʰ &nbsp; ლ(｡-﹏-｡ ლ) &nbsp; (-﹏-。) &nbsp; ● ﹏☉
 
 .﹡:・’ﾟ:.'[[[｡＋ _ ＋｡]]]..﹡:ﾟ･’ﾟﾟ:.’･ﾟ
