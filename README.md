@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 - 🌱 At the same time, unwontedly — some might say contemptibly — _I_’m having quite a time learning to code ＿φ(ᐖ=) ლ(ᐆ˙ლ)
 - ⚡ Fun fact: it seems that, with _me_, Shoshin reaches levels never seen before ⊹╰(｀ᐊ´)╯⊹
 - 💬 Ask _me_ about anything ┐( ᐛ )┌
-- 📫 How to reach _me_: have a look at my [Keybase.pub](https://jpleboeuf.keybase.pub/) ☆⌒ヽ(ᐖヽ)
+- 📫 How to reach _me_: have a look at _my_ [Keybase.pub](https://jpleboeuf.keybase.pub/) ☆⌒ヽ(ᐖヽ)
 - 🧟 (x(x_(x_x(⌓̈)x_x)_x)x)
 
 **＼\ ٩( ᐛ )و /／**
