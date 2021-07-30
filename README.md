@@ -37,3 +37,5 @@ Here are some ideas to get you started:
 ヾ《´ᐊ｀》ﾉﾞ &nbsp; ლ(｡-﹏-｡ ლ) &nbsp; (-﹏-。) &nbsp; ● ﹏☉
 
 .﹡:・’ﾟ:.'[[[｡＋ _ ＋｡]]]..﹡:ﾟ･’ﾟﾟ:.’･ﾟ
+
+**ง( ⌓̈ )ง**
