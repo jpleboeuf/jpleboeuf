@@ -42,4 +42,4 @@ Here are some ideas to get you started:
 
 ヽ༼  ⪨෴⪩༽ﾉ &nbsp; ヽ༼  ⊙_⊙༽ﾉ &nbsp; 三三ᕕ( ⌓̈ )ᕗ
 
-.。･:✻♡◟༼ຈ 3 ຈ༽◞꙳:･。.
+.。･:✻♡◟༼ຈ 3 ຈ༽◞♡꙳:･。.
