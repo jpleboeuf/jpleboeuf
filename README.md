@@ -43,3 +43,5 @@ Here are some ideas to get you started:
 ヽ༼  ⪨෴⪩༽ﾉ &nbsp; ヽ༼  ⊙_⊙༽ﾉ &nbsp; 三三ᕕ( ⌓̈ )ᕗ
 
 .。･:✻♡◟༼ຈ 3 ຈ༽◞♡꙳:･。. &nbsp;	ಇ(˵ᐛ˵)ಇ 
+
+٩( ᐛ )=ε/̵͇̿̿/̿ ̿ ̿ ̿ ̿’“❤
