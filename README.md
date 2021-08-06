@@ -45,3 +45,5 @@ Here are some ideas to get you started:
 .。･:✻♡◟༼ຈ 3 ຈ༽◞♡꙳:･。. &nbsp;	ಇ(˵ᐛ˵)ಇ 
 
 ٩( ᐛ )=ε/̵͇̿̿/̿ ̿ ̿ ̿ ̿’“❤
+
+☆ﾟ°˖* ᕕ( ᐛ )ᕗ
