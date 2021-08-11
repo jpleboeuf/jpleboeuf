@@ -55,3 +55,5 @@ Here are some ideas to get you started:
 ¯\\(°⌓o)/¯
 
 ᕕ(ㆆ︹ㆆ)ᕗ
+
+ᕙ(`▽´)ᕗ
