@@ -69,3 +69,5 @@ Here are some ideas to get you started:
 ( ᐛ)⊃＿/
 
 🍔ƪ(ᐇƪ)
+
+╮(；ᐛ)╭
