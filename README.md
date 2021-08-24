@@ -79,3 +79,5 @@ Here are some ideas to get you started:
 [ ⊐•̀⌂•́]⊐ &nbsp; ᕕ[ ᐛ]ᕗ
 
 ＼＼\\ ٩(๑`▽´๑)۶ //／／
+
+(*ᐛ)⊃[_]
