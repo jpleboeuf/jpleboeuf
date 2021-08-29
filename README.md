@@ -89,3 +89,5 @@ Here are some ideas to get you started:
 ╭(๑ᐛ)و ̑̑ !
 
 ┬─┬⃰͡ (ᐆᵔ͜ ) 
+
+（；ᐛ)ノ[ ($) ]
