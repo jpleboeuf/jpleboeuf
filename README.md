@@ -93,3 +93,5 @@ Here are some ideas to get you started:
 （；ᐛ)ノ[ ($) ]
 
 ｰ( ＾▽＾)_皿~~
+
+(੭ ˵╹▽╹˵)⊃━☆ﾟ.*･｡ﾟ
