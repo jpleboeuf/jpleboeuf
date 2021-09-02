@@ -97,3 +97,5 @@ Here are some ideas to get you started:
 (੭ ˵╹▽╹˵)⊃━☆ﾟ.*･｡ﾟ
 
 (+⌓+) &nbsp; (-⌓-) &nbsp; (_ _) .zz
+
+∠( ´ᐊཀ` 」∠)＿
