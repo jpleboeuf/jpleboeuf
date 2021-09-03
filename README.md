@@ -99,3 +99,5 @@ Here are some ideas to get you started:
 (+⌓+) &nbsp; (-⌓-) &nbsp; (_ _) .zz
 
 ∠( ´ᐊཀ` 」∠)＿
+
+｢(⊙.☉)7ヾ
