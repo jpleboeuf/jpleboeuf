@@ -105,3 +105,5 @@ Here are some ideas to get you started:
 d(´▽｀)b
 
 ¯\\_(ツ)_/¯
+
+ヽ(*ﾟｰﾟ)ゞ
